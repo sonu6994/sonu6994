@@ -4,7 +4,7 @@ Seasoned SeniorIT Recruiter with a proven track record of delivering top-tier ta
 * **Healthcare and Pharma:** Clinical Research Associates, Medical Science Liaisons, and Regulatory Affairs Specialists.
 * **Information Technology:** IT Support Specialists, Network Engineers, Cybersecurity Analysts, and other IT professionals.
 
-My experience at ManpowerGroup has honed my skills in:
+My experience at Experis ManpowerGroup has honed my skills in:
 
 * **Talent Acquisition:** Utilizing cutting-edge sourcing strategies to identify and attract top talent.
 * **Recruitment Process Management:** Streamlining recruitment processes to ensure efficiency and effectiveness.
